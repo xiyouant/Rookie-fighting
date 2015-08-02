@@ -1,1 +1,1 @@
-Think More DO More
+Think More Do More
